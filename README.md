@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Iandra Rocha 😁
+## Bem-vindo(a) ao perfil da Iandra Rocha 
 
  <div>
    <a href="https://github.com/IandraRocha">
